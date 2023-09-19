@@ -4,7 +4,7 @@ New TG https://t.me/+vqgfXRBKZMgwOTkx .
 
 Previous test were limited but extremely successful and positive.
 
-Would love to hesr feedback/experiences through our resources given.
+Would love to hear feedback/experiences through our resources given.
 
 
 
