@@ -1,3 +1,13 @@
+****Update Late 2023****
+
+New TG https://t.me/+vqgfXRBKZMgwOTkx .
+
+Previous test were limited but extremely successful and positive.
+
+Would love to hesr feedback/experiences through our resources given.
+
+
+
 ****Update*****
 
 NEW Pre Compiled Python BASED Release
